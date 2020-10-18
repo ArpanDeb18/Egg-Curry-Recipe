@@ -20,7 +20,7 @@ Add chopped cilantro, cover the pan and simmer for another 2 minutes.
 
 Serve egg curry with any bread of your choice. It also tastes great with rice.
 
-😁😋 enjoy!
+😁😋 Enjoy!
 
 
 * Using green peas is optional. You may skip it. You may add potatoes to the curry is you like.
