@@ -11,21 +11,39 @@ Finally the meal is finished off with the addition of someherbs like coriander l
 INGREDIENTS:-
 
 5 large eggs boiled
+
 1/4 cup green peas (use frozen peas)
+
 1 tablespoon oil (use vegetable oil)
+
 1/2 teaspoon cumin seeds
+
 1/4 teaspoon mustard seeds
+
 2 cloves
+
 4-5 peppercorns
+
 2 medium red onion finely chopped
+
 3 medium tomatoes pureed
+
 2 green chili finely chopped
+
 1 inch ginger chopped and then crushed
+
 3-4 garlic cloves chopped and then crushed
+
 1/4 teaspoon turmeric powder
+
 1/2 teaspoon kashmiri red chili powder
+
 1/4 teaspoon garam masala
+
 1.5 teaspoon coriander powder
+
 1 cup water or adjust to how thick or thin you want the curry to be
+
 2 tablespoons chopped cilantro
+
 salt to taste
